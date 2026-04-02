@@ -1,0 +1,1 @@
+# 241712029_Adriel-Gerald-Lumban-Tobing_KomA_Responsi-Kecerdasan-Buatan
